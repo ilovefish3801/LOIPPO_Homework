@@ -1,1 +1,0 @@
-# LOIPPO_Homework
